@@ -8,5 +8,4 @@ It is *you* who doth noth know what I ith.
 ⚔️ Hunter of elk<br>
 🌔 Sovereign of the moon
 
-## MANBOST?!
 ![TYYYYYYPOOOOOOOOO](https://media.tenor.com/5TlzM-Ppa2MAAAAd/aunty-donna-manbost.gif)
