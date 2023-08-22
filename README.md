@@ -1,7 +1,11 @@
 # For I am Manbeast
 
-😉 Lover of women
-⚔️ Hunter of elk
+Hello, little girl.
+
+It is *you* who doth noth know what I ith.
+
+🤼‍♀️ Lover of women<br>
+⚔️ Hunter of elk<br>
 🌔 Sovereign of the moon
 
 ## MANBOST?!
